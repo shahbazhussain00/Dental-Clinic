@@ -1,1 +1,1 @@
-# Dental-Clinic
+#  Dental Clinic offers expert dental care in a warm, friendly environment. From routine check-ups to cosmetic dentistry, we provide comprehensive treatments for the whole family. Book your appointment today for a healthier, brighter smile.
